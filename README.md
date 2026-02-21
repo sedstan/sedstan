@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @sedstan
 - 👀 I’m interested in all things tech.
-- 🌱 I’m currently learning about IT support and security.
+- 🌱 I’m on a path to becoming a GRC Analyst.
 - 💞️ I’m looking to collaborate on anything on the web, IT and security 
 - 📫 How to reach me **Threads**: @SedkySSaid, **LinkedIn**: https://linkedin.com/in/sstanleysaid/
 
